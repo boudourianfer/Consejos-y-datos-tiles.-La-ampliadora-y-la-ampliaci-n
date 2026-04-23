@@ -1,1 +1,2 @@
-# Consejos-y-datos-tiles.-La-ampliadora-y-la-ampliaci-n
+# Consejos-y-datos-útiles.-La-ampliadora-y-la-ampliación
+Podrá ser útil poner un filtro rojo en su ampliadora. Le permitirá enfocar la foto directamente sobre el propio papel sensible, sin afectar a la emulsión. A este mismo objeto puede usarse un filtro anaranjado. En las ampliadoras que no tienen dispositivo de enfoque automático podrá recurrirse para enfocar al uso de una película de enfoque. Se escogerá a este efecto una que haya tenido exceso de exposición, cuanto más densa mejor, y se darán dos cortes diagonales a la emulsión. Recordemos un viejo recurso para saber a qué atenerse en cuanto al tiempo de exposición, lo mismo en las copias por contacto que en las ampliaciones. 
